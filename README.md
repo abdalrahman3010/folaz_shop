@@ -1,1 +1,0 @@
-# folaz_shop
